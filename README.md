@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there, My name is SUMIT KUMAR and I'm a AI Enthusiast👋
 
 <!--
 
